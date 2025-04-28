@@ -2,5 +2,3 @@
  C+H is encouraged! 
 
 
-
-We listen we dont judge strawpage link: https://anonymeow.straw.page
