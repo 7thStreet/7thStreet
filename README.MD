@@ -7,7 +7,7 @@
 ${\textsf{\color{#b9c8ff} ou }}$
 ${\textsf{\color{#d1c7ff} Marceline }}$
 
-　 　⠀ 　 　　 　⠀ 　 　⠀ 　 　⠀ 　 　⠀ ⠀　⠀ 　 　⠀   ${\textsf{\color{#b6dbff} Xe }}$
+　 　⠀ 　 　　 　⠀ 　 　⠀ 　 　⠀ 　 　⠀ ⠀　⠀ 　 　⠀      ${\textsf{\color{#b6dbff} Xe }}$
 ${\textsf{\color{#b9c8ff} Xem }}$
 ${\textsf{\color{#b9c8ff} Xyr }}$
 ${\textsf{\color{#d1c7ff} He }}$
