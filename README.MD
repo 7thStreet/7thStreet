@@ -1,2 +1,1 @@
-
- 　⠀ 　　⠀ 　　⠀ 　　⠀ 　　⠀ 　　⠀ 　　⠀ 　　⠀ 　　⠀ 　 　　Ი 𐑼 　❛❛ 　　[Fluffle](https://fluffle.cc/lithuanianrepublic)　　[ata](https://7thstreet.atabook.org/)　　　
+<img src="https://files.catbox.moe/9ihj49.png" width="50">
