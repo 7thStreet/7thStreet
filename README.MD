@@ -3,6 +3,7 @@
 </p>
 
 
-${\textsf{\color{#b6dbff} Pervert⠀⠀ ⠀⠀ou⠀⠀ ⠀⠀Marceline}}$
-${\textsf{\color{#b9c8ff} Xe  Xem  Xyr  or  He  They}}$
+${\textsf{\color{#b6dbff} Pervert⠀}}$
+${\textsf{\color{#b9c8ff} ou }}$
+${\textsf{\color{#d1c7ff} Marceline }}$
 
