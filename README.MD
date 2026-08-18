@@ -7,10 +7,10 @@
 ${\textsf{\color{#b9c8ff} ou }}$
 ${\textsf{\color{#d1c7ff} Marceline }}$
 
-　 　⠀ 　 　　 　⠀ 　 　⠀ 　 　⠀ 　 　⠀ ⠀ ${\textsf{\color{#b6dbff} Xe }}$
+　 　⠀ 　 　　 　⠀ 　 　⠀ 　 　⠀ 　 　⠀ ⠀　⠀ 　 　⠀   ${\textsf{\color{#b6dbff} Xe }}$
 ${\textsf{\color{#b9c8ff} Xem }}$
 ${\textsf{\color{#b9c8ff} Xyr }}$
 ${\textsf{\color{#d1c7ff} He }}$
 ${\textsf{\color{#dec7ff} They }}$
 
- ⠀ ⠀ ⠀ ⠀ 　 　⠀ 　 　⠀ ⠀ ⠀ ⠀　 　⠀ 　 　⠀  ⠀Ი 𐑼 　❛❛ 　　[Fluffle](https://fluffle.cc/lithuanianrepublic)　　[ata](https://7thstreet.atabook.org/)
+ ⠀ ⠀ ⠀ ⠀ 　 　⠀ 　 　⠀ ⠀ ⠀ ⠀　 　⠀ 　 　⠀  ⠀　⠀ 　 　⠀  Ი 𐑼 　❛❛ 　　[Fluffle](https://fluffle.cc/lithuanianrepublic)　　[ata](https://7thstreet.atabook.org/)
