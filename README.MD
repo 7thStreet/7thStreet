@@ -9,4 +9,4 @@ ${\textsf{\color{#d1c7ff} Marceline }}$
 
 ${\textsf{\color{#b6dbff} Xe Xem Xyr He They⠀}}$
 
-Ი 𐑼 　❛❛ 　　Fluffle　　ata
+Ი 𐑼 　❛❛ 　　[Fluffle](https://fluffle.cc/lithuanianrepublic)　　[ata](https://7thstreet.atabook.org/)
