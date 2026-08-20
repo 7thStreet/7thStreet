@@ -13,4 +13,6 @@ ${\textsf{\color{#b9c8ff} Xyr }}$
 ${\textsf{\color{#d1c7ff} He }}$
 ${\textsf{\color{#dec7ff} They }}$
 
+${\textsf{\color{#b9c8ff} <3 My specials: @bowawaoo @100bottlesofglue @kirimikuna @ilovemanasama123 @50Lob @ramunelemon }}$
+
  ⠀ ⠀ ⠀ ⠀ 　 　⠀ 　 　⠀ ⠀ ⠀ ⠀　 　⠀ 　 　⠀  ⠀　⠀ 　 　⠀  Ი 𐑼 　❛❛ 　　[Fluffle](https://fluffle.cc/lithuanianrepublic)　　[ata](https://7thstreet.atabook.org/)
